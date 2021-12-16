@@ -31,3 +31,6 @@ Having confidence in my abilities, my supervisor gave me the task of creating a 
 
 ![](https://github.com/JamesWheeler4/Craftsman_Portfolio/blob/main/Frame1.JPG)
 
+![](https://github.com/JamesWheeler4/Craftsman_Portfolio/blob/main/Frame2.jpg)
+
+![](https://github.com/JamesWheeler4/Craftsman_Portfolio/blob/main/Frame3.jpg)
